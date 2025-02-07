@@ -1,6 +1,6 @@
 # 👨🏻‍💻  Rogério Vaz
 
-**`Desenvolvedor FullStack`**
+**`</>`**
 
 
 
